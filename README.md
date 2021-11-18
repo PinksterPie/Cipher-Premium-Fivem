@@ -1,0 +1,1 @@
+# Cipher-Premium-Fivem Works on (SERVER BUILD 1604 ONLY) DONT INJECT IN MAIN MENU
